@@ -1,0 +1,1 @@
+http://archive.hasee.com/Chinese/drivers/drivers/index.php/Download/Index/model.html?id=1072
